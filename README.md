@@ -19,7 +19,7 @@ Hi 👋, I'm Rishabh Shah
 
 📫 How to reach me rishabh.shah3197@gmail.com & rnshah1997@gmail.com.
 
-📄 Know about my experiences Resume..
+📄 Know about my experiences Resume.
 
 Connect with me:
 http://www.linkedin.com/in/rishabh-shah-9bb242aa
